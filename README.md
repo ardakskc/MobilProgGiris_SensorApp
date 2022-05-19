@@ -3,4 +3,4 @@ Mobil Programlamaya Giriş Ödev 2
 
 Apk Dosyası: 18011092_2.apk
 
-Uygulama Tanıtım Videosu:
+Uygulama Tanıtım Videosu: https://youtu.be/lDTC0sEUkXA
